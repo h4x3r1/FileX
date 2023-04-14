@@ -20,9 +20,9 @@ D RAT : https://mega.nz/file/xAZSAahC#qxkx-4IXIfd5HWRZyQRxF4BYMD8O5PlUDevJlxj5_5
 SMX : https://mega.nz/file/hcYV1ToI#TwZNmt8IK4WL-mThb-HhMNXzc1woOD3mWndkKviDRGc
 
 
-# Reactions Of Facebook : https://is.gd/83w6fK
+# Reactions Of Facebook : https://is.gd/Ng4e3H
 
-# FOLLOWER Of Instagram : https://is.gd/a7tV0J
+# FOLLOWER Of Instagram : https://is.gd/xTlyP4
 
 
-# HOT Chats 🥵 : https://is.gd/KblJCW
+# Tik Tok Following : https://is.gd/W84xwa
