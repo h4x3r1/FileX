@@ -31,7 +31,10 @@
 # Tik Tok Following : https://is.gd/W84xwa
 
 
-### [`MY SELF`](https://github.com/h4x3r1)
+<p align=left> <img src=https://komarev.com/ghpvc/?username=termuxhackers-id alt=termuxhackers.id /> </p>
+
+[`MY SELF`](https://github.com/h4x3r1)
+
 ```
 "Name": "Hr1doy Isla.",
 "Status": "Learning",
