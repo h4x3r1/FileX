@@ -3,7 +3,7 @@
 𝙷𝚛1𝚍𝚘𝚢 / 𝙷𝚊𝚡4  <img src="https://emojis.slackmojis.com/emojis/images/1588315024/8823/hyperkitty.gif" width="35px"></i></b></h2>
 
 # 𝐅𝐢𝐥𝐞-𝐗 
-𝐓𝐡𝐢𝐬 𝐑𝐞𝐩𝐨 𝐂𝐨𝐧𝐭𝐚𝐢𝐧𝐬 𝐅𝐢𝐥𝐞𝐬+𝐋𝐢𝐧𝐤𝐬 💫
+𝐓𝐡𝐢𝐬 𝐑𝐞𝐩𝐨 𝐂𝐨𝐧𝐭𝐚𝐢𝐧𝐬 𝐅𝐢𝐥𝐞𝐬+𝐋𝐢𝐧𝐤𝐬 📑
 
 ### AI : https://mega.nz/file/sdowGLwZ#JFNIAivI0BhSXSyqY6wQOThqhqfXSP7CRgkWmXk6PiA
 
