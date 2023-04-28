@@ -1,4 +1,4 @@
-<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.herokuapp.com?font=Fira+Code&weight=700&size=30&pause=1000&color=00F711FF&width=460&height=70&lines=CRACK3D+APSS+FOR+FREE+❤️‍🩹✨️" alt="Typing SVG" /></a>
+<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.herokuapp.com?font=Fira+Code&weight=700&size=30&pause=1000&color=00F711FF&width=460&height=70&lines=MOD+APPLICATIONS+FOR+FREE" alt="Typing SVG" /></a>
 ## 𝐅𝐢𝐥𝐞-𝐗 
 𝐓𝐡𝐢𝐬 𝐑𝐞𝐩𝐨 𝐂𝐨𝐧𝐭𝐚𝐢𝐧𝐬 𝐅𝐢𝐥𝐞𝐬+𝐋𝐢𝐧𝐤𝐬 💫
 
