@@ -18,7 +18,7 @@
 
 ##### Follower Of Instagram : https://is.gd/xTlyP4
 
-##### Follower Of TikTok : https://is.gd/W84xwa
+##### Reactions Of TikTok : https://is.gd/W84xwa
 
 -------------------------------------------
 <p align=left> <img src=https://komarev.com/ghpvc/?username=termuxhackers-id alt=termuxhackers.id /> </p>
