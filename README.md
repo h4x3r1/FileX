@@ -14,11 +14,11 @@
 
 -------------------------------------------
 
-##### Reactions Of Facebook : https://is.gd/Ng4e3H
+#### Reactions Of Facebook : https://is.gd/Ng4e3H
 
-##### Follower Of Instagram : https://is.gd/xTlyP4
+#### Follower Of Instagram : https://is.gd/xTlyP4
 
-##### Reactions Of TikTok : https://is.gd/W84xwa
+#### Reactions Of TikTok : https://is.gd/W84xwa
 
 -------------------------------------------
 <p align=left> <img src=https://komarev.com/ghpvc/?username=termuxhackers-id alt=termuxhackers.id /> </p>
