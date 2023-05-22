@@ -1,33 +1,22 @@
-<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.herokuapp.com?font=Fira+Code&weight=700&size=30&pause=1000&color=00F711FF&width=460&height=70&lines=MOD+APPLICATIONS+FOR+FREE" alt="Typing SVG" /></a>
-## 𝐅𝐢𝐥𝐞-𝐗 
-𝐓𝐡𝐢𝐬 𝐑𝐞𝐩𝐨 𝐂𝐨𝐧𝐭𝐚𝐢𝐧𝐬 𝐅𝐢𝐥𝐞𝐬+𝐋𝐢𝐧𝐤𝐬 💫
 
-### 𝗕𝗲𝘀𝘁-𝗫 : https://bit.ly/3oSO1t4
+#### 𝐅𝐢𝐥𝐞-𝐗 
 
-### 𝗗𝗿𝗶𝘃𝗲-𝗫 : https://bit.ly/425nGGB
+𝚃𝚑𝚒𝚜 𝚁𝚎𝚙𝚘 𝚑𝚊𝚜 𝚎𝚡𝚘𝚝𝚒𝚌 𝚏𝚒𝚕𝚎𝚜 𝚊𝚗𝚍 𝚕𝚒𝚗𝚔𝚜 !
 
-### 𝗠𝗮𝗽-𝗫 : https://bit.ly/3NkCsFe
+### 𝙱𝚎𝚜𝚝 : https://bit.ly/3oSO1t4
 
-### 𝗦𝗮𝗿𝗮-𝗫 : https://bit.ly/40MwUGE
+### 𝙿𝚑𝚘𝚝𝚘𝚜 : https://bit.ly/425nGGB
 
-### 𝗛𝗮𝗫𝗥𝗮𝘁 : https://bit.ly/447pxwp
+### 𝙼𝚊𝚜𝚜𝚊𝚐𝚎 : https://bit.ly/3NkCsFe
 
--------------------------------------------
+### 𝚂𝚊𝚛𝚊 : https://bit.ly/40MwUGE
 
-##### Reactions Of Facebook : https://is.gd/Ng4e3H
+### 𝙴𝚡𝚘𝚝𝚒𝚌 : https://bit.ly/447pxwp
 
-#### Follower Of Instagram : https://is.gd/xTlyP4
+_____________________________________
+## Facebook : https://is.gd/Ng4e3H
 
-#### Reactions Of TikTok : https://is.gd/W84xwa
+## Instagram : https://is.gd/xTlyP4
 
--------------------------------------------
-<p align=left> <img src=https://komarev.com/ghpvc/?username=termuxhackers-id alt=termuxhackers.id /> </p>
+## TikTok : https://is.gd/W84xwa
 
-```
-"Name": "Hr1d0y Islam",
-"Status": "Learning",
-"Address": "127.0.0.1",
-"Age": "Doesn't matter",
-"Date of Birth": "jan-21-200xx",
-   
-```
