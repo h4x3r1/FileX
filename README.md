@@ -3,15 +3,15 @@
 ```bash
   𝚃𝚑𝚒𝚜 𝚁𝚎𝚙𝚘 𝚑𝚊𝚜 𝚎𝚡𝚘𝚝𝚒𝚌 𝚏𝚒𝚕𝚎𝚜 !
 ```
-## Exotic: https://bit.ly/3oSO1t4
+### Exotic : https://bit.ly/3oSO1t4
 
-## Image: https://bit.ly/425nGGB
+### Image : https://bit.ly/425nGGB
 
-## Sms: https://bit.ly/3NkCsFe
+### Sms : https://bit.ly/3NkCsFe
 
-## Sara: https://bit.ly/40MwUGE
+### Sara : https://bit.ly/40MwUGE
 
-## Doge: https://bit.ly/447pxwp
+### Doge : https://bit.ly/447pxwp
 
 _____________________________________
 ## Facebook : https://shorturl.at/tDZ89
