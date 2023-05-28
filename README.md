@@ -5,9 +5,9 @@
 ```
 ## Exotic: https://bit.ly/3oSO1t4
 
-## Photos: https://bit.ly/425nGGB
+## Image: https://bit.ly/425nGGB
 
-## Massage: https://bit.ly/3NkCsFe
+## Sms: https://bit.ly/3NkCsFe
 
 ## Sara: https://bit.ly/40MwUGE
 
