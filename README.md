@@ -16,7 +16,7 @@ Doge   : https://bit.ly/447pxwp
 ```
 _____________________________________
 ```bash
-        Phishing Links 
+          Phishing Links 
 ```
 
 ### Facebook : https://shorturl.at/tDZ89
