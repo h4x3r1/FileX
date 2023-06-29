@@ -20,3 +20,5 @@ _____________________________________
 ```
 - Maintained by [Exotıc-XD](https://github.com/h4x3r1)
 
+- Malware by [Ethward-XD](https://github.com/Ethward-XD)
+
