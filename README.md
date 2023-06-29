@@ -16,12 +16,7 @@ Doge   : https://bit.ly/447pxwp
 ```
 _____________________________________
 ```bash
-        [ Phishing Links ]
+        [ Contributed ]
 ```
-
-### Facebook : https://shorturl.at/tDZ89
-
-### Instagram : https://shorturl.at/AEFKL
-
-## TikTok : https://shorturl.at/grUXY
+- Maintained by [Exotıc-XD](https://github.com/h4x3r1)
 
